@@ -2,7 +2,7 @@
 
 ### Start Trading With Exclusive Bonuses
 
-Welcome to our guide for **XM Partner Code: 7WCMC**. New traders who register using this partner code may be eligible for promotional rewards including a **$30 No Deposit Bonus** and a **$100 Deposit Bonus**, giving beginners an opportunity to explore the platform with additional trading credit. XM is a popular online broker that provides access to global markets such as Forex, commodities, indices, and cryptocurrencies.
+Welcome to our guide for **XM Partner Code: 7WCMC**. New traders who register using this partner code may be eligible for promotional rewards including a **$$1,000 No Deposit Bonus** and a **$10,600 Deposit Bonus**, giving beginners an opportunity to explore the platform with additional trading credit. XM is a popular online broker that provides access to global markets such as Forex, commodities, indices, and cryptocurrencies.
 
 ---
 
@@ -36,11 +36,11 @@ Using **XM Partner Code: 7WCMC** during registration may unlock several promotio
 
 ### 💰 Available Promotions
 
-✔ **$30 No Deposit Bonus**
+✔ **$$1,000 No Deposit Bonus**
 This bonus allows new users to start trading without depositing funds.
 
-✔ **$100 Deposit Bonus**
-When traders make a qualifying deposit, they may receive an additional **$100 trading bonus**.
+✔ **$10,600 Deposit Bonus**
+When traders make a qualifying deposit, they may receive an additional **$10,600 trading bonus**.
 
 ✔ **Up to 100% Deposit Bonus**
 Some promotions may match a trader’s deposit with additional trading credit.
@@ -117,8 +117,8 @@ These programs make XM popular among trading communities and affiliate marketers
 | ---------------- | -------------------------------- |
 | Broker           | XM                               |
 | Partner Code     | **7WCMC**                        |
-| No Deposit Bonus | **$30**                          |
-| Deposit Bonus    | **$100 + promotional bonuses**   |
+| No Deposit Bonus | **$$1,000**                          |
+| Deposit Bonus    | **$10,600 + promotional bonuses**   |
 | Platforms        | MT4 / MT5                        |
 | Markets          | Forex, Crypto, Commodities, CFDs |
 
