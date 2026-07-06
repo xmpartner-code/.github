@@ -1,4 +1,3 @@
-````markdown
 # 🚀 XM Partner Code 7WCMC (2026 Guide)
 
 > **Use Partner Code:** `7WCMC`
